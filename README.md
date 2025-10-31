@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Rafael | Building Digital Solutions for Startups
+# 👋 Hi, I'm Raf3 | Building Digital Solutions for Startups
 
 <div align="center">
   
